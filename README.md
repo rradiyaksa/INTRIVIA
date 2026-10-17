@@ -10,3 +10,5 @@
 ## Kesan Pesan Cluster [10] Sejauh Ini 
 [HALOOOO KAKAK FASIL KU KAK RYO DANN KAK ZIZII, btw i really apreciate kalian bisa merangkul kita semua anak anak cluster 10 menjadi makin kompak dan makin seruu, aku sangat senang sekali bisa menemukan banyak hal di cluster 10 ini, banyak canda tawa nya juga yang jadi ngebuat suasananya makin seru dan kocakk. last but not least makasiih yaa kak ryo dan kak zizi telah mengasuh kita anak anak cluter 10 ini, aku doain semoga laprak kalian lancar, kuliahnya lancar, dan kesehatannya jangan lupaa. OIYAA MASIH NGAKAK SAMA KAK ZIZII JATOH MAAFF KAKK HEHEHEHE.] 
 
+## Harapan kuliah
+[Harapan kuliah aku di fakultas ilmu komputer ini adalah aku bertekad untuk belajar semaksimal mungkin dan menambah relasi di perkuliahan ini, even aku berorganisasi juga supaya bisa mengasah softskill aku]
